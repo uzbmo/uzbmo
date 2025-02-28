@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @uzb_mo
 - i love cheats. <3
-- 💞️ I’m looking to collaborate on ...
-- 📫 How to reach me: @uzb_mo is my discord
+- 💞️ I’m looking to become a famous cheat creator
+- 📫 @uzb_mo is my discord
 - 😄 Pronouns: he/him
 - ⚡ Fun fact: i cheat
 
